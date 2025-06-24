@@ -1,8 +1,9 @@
 <h2>NyaFun动漫官网 - 动漫在线免费看网站入口|最新网址|打不开</h2>
 <p>NyaFun动漫是一个专为动漫爱好者打造的在线观看平台，致力于提供丰富多样的动漫资源。它汇聚了海量的动漫作品，包括热门新番、经典老番、国内外热播剧集以及独立小众作品，涵盖了热血、冒险、爱情、科幻、悬疑、奇幻等多种类型。用户可以在这里无障碍地观看最新动漫作品，享受高清流畅的播放体验，而且所有内容均为免费。此外，NyaFun还提供了良好的界面和交互体验，支持多种画质和语言选择。</p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15721.html"><strong>NyaFun动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259"><strong>⏬经典电影/无损音乐</strong></a></p>
-<p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/15721.html" target="_blank"><strong>NyaFun动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan" target="_blank"><strong>在线看动漫/漫画导航网站大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
+<p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h2><strong>功能特点</strong></h2>
 <p><strong>海量资源</strong>：NyaFun拥有丰富的动漫资源库，覆盖了从经典到最新的各类动漫作品。无论是日本动漫、欧美动漫还是国漫，都能在这里找到。平台已收录超过3000部日本动漫，紧跟行业潮流。</p>
 <p><strong>高清无广告</strong>：NyaFun专注于为用户提供流畅、清晰的观看体验，支持高清播放，且无广告干扰。用户可以安心享受每一集动漫的精彩内容，无需担心广告弹窗的打扰。</p>
